@@ -1,4 +1,6 @@
-### Hi there, I'm [Abhishek Kushwaha!](https://hemant.codes) 👋.  <img src="https://raw.githubusercontent.com/8bithemant/8bithemant/master/svg/pronouns/hehim.svg" >
+### Hi there, I'm [Abhishek Kushwaha!](https://www.linkedin.com/in/abhishek-kushwaha-b04341194/) 👋.  
+<br>
+<img src="https://media-exp1.licdn.com/dms/image/C5103AQHUDNY-Gvm6BQ/profile-displayphoto-shrink_200_200/0?e=1601510400&v=beta&t=FmOgoSiBOpP05313xX0d7VgkNzvotegV2YlEs-RMrtg" >
 
 
 <br/>
